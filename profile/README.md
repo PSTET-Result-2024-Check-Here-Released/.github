@@ -1,8 +1,8 @@
 ### PSTET Result 2024 Direct Link - [Click Here](https://qualityclasses.in/pstet-result-2024/)
 
-PSTET Result 2024 Direct Link - [Click Here](https://qualityclasses.in/pstet-result-2024/)
+### PSTET Result 2024 Direct Link - [Click Here](https://qualityclasses.in/pstet-result-2024/)
 
-PSTET Result 2024 Direct Link - [Click Here](https://qualityclasses.in/pstet-result-2024/)
+### PSTET Result 2024 Direct Link - [Click Here](https://qualityclasses.in/pstet-result-2024/)
 
 
 ### **What is PSTET?**
